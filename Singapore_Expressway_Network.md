@@ -1,1 +1,0 @@
-1.  REDIRECT [Singapore Expressway](Singapore_Expressway "wikilink")
